@@ -1,1 +1,1 @@
-Made by Deepak "The Hackerman" Yadav
+Made by Deepak Yadav
